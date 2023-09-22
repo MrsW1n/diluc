@@ -21,3 +21,6 @@ A melhor forma dos pais lidarem com a criança para não deixar que o bullying i
 
 
 ![](https://static.todamateria.com.br/upload/bu/ll/bullying-og.jpg)
+
+
+Yasmin  N°36  2°C
