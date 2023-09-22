@@ -18,5 +18,5 @@ A especialista diz que o bullying físico, verbal e psicológico são os que aco
 
 Como tratar?
 A melhor forma dos pais lidarem com a criança para não deixar que o bullying interfira no seu desenvolvimento é mostrar que as diferenças existem e que é necessário aprender a conviver com elas diariamente. Também é importante reforçar a autoestima da criança e, principalmente, valorizar o diálogo. "?Ela precisa sentir-se segura para expressar suas necessidades, medos e ansiedades para a escola e família". 
-
+.
 ![](https://static.todamateria.com.br/upload/bu/ll/bullying-og.jpg)
